@@ -1,2 +1,2 @@
 # fit
-F*t
+F*t - omri taase li yeled
